@@ -7,4 +7,4 @@
 - 💬 Ask me about FULLSTACK WEB DEVELOPMENT(MERN,MEVN,CODEIGNITER4)
 - 📫 How to reach me: Email -> 👨‍💻 mrsbharani7799@gmail.com 💁🏼‍♂️ [Instagram - @kri_os23](https://www.instagram.com/kri_os23/) 
 - 😄 Pronouns: He/His
-- ⚡ Fun fact: I spend most of my free timein by playing Cricket 🏏
+- ⚡ Fun fact: I spend most of my free time by playing Cricket 🏏
